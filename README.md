@@ -11,5 +11,4 @@ Cười lăn lộn, cười vỡ bụng với kho truyện cười lớn nhất 
 - Truyện cười tình yêu
 - Truyện cười VoVa
 - Truyện cười dân gian
-http://www.chigaitoi.com/
-[chigaitoi.com](http://www.chigaitoi.com/)
+>>>>>>>>>>>>>>>>>>>>>>[chigaitoi.com](http://www.chigaitoi.com/)
