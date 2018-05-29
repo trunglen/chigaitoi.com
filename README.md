@@ -43,4 +43,4 @@ Cười lăn lộn, cười vỡ bụng với kho truyện cười lớn nhất 
     <div style="background-color: white; font-family: arial, serif; font-size: 15px; margin-bottom: 12.5px;">
     Sưu tầm</div>
     <br />
-    Xem thêm <a href="http://www.chigaitoi.com/2018/05/truyen-cuoi-vo-chong-em-tan-hon.html"> <b>truyện cười vợ chồng - Đêm tân hôn</b></a>
+    Xem thêm <a href="https://www.chigaitoi.com/2018/05/truyen-cuoi-vo-chong-em-tan-hon.html"> <b>truyện cười vợ chồng - Đêm tân hôn</b></a>
